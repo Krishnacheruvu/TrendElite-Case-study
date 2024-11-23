@@ -1,0 +1,1 @@
+# TrendElite-Case-study
